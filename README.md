@@ -1,2 +1,1 @@
-# BAOYUTV
-鲍鱼TV网址 by7666.com
+# 新地址 B Y 7 6 6 6. c o m
